@@ -9,3 +9,8 @@ The calendars and timekeeping for the campaign, including a summary of highlight
 ## [📌](./MAPS/README.md) MAPS
 
 Maps gathered by the players for the campaign, including the hometowm of Little Pickford and the wider Pickford Basin. 
+
+
+## [📚](./BASIC-RULES.md) BASIC RULES
+
+This is a brief introduction to D&D. 
