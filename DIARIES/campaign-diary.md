@@ -64,4 +64,25 @@ They returned to Steeb's hut to spend the night and ate some questionable stew w
 
 *Steeb's hut, Mossdeep*
 
-They avoided another round of stew and began to plan what they were going to do next. 
+They avoided another round of stew and began to plan what they were going to do next. Feeb offered the group bowls of stew to take with them, which Nix and Zealous agreed to. 
+
+They followed the tracks from the church into the High Forest. They soon found two goblins squabbling outside a large hole in the ground beneath a tree. 
+
+Despite an attempt at stealth, they entered into battle with the goblins, killing them both quickly. 
+
+Nix found a trap at the entrance to the cave which they all managed to jump over. Inside the cavern they found themselves attacked by three goblins and a warg which was tied to the wall. After a dramatic display of Zealous' fire breath, they killed the three goblins and paralysed the warg with one of Nix's poisoned arrows. 
+
+Using her ability to talk to animals, and Nix's portion of stew, Sparkleduck talked the warg into seeing her as its master. Zealous investigated a whimpering at the back of the cave and found a crying, tied-up Janacia, worrying for her life. 
+
+Nix discovered a skull, painted onto the wall of the cave, and a chest of goodies, some of which he shared with the others. 
+
+They decided to rest for the night. 
+
+
+#### Day 29
+
+*Cave in the High Forest, near Mossdeep*
+
+Early in the morning, Zealous' watch was interrupted by the sudden return of two more goblins. She killed one, and Sparkleduck killed the other. Nix slept through the whole thing. 
+
+Janacia, impressed by Sparkleduck, gifted her a copper star wrapped in twine that she said would protect her. 
