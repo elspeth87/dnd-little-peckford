@@ -14,3 +14,11 @@ Maps gathered by the players for the campaign, including the hometowm of Little 
 ## [📚](./BASIC-RULES.md) BASIC RULES
 
 This is a brief introduction to D&D. 
+
+
+## CHARACTERS
+
+
+### [🦆](./SPARKLEDUCK/README.md) SPARKLEDUCK
+
+Information relating to Sparkleduck (AKA Sparkledick). 
