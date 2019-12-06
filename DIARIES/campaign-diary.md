@@ -86,3 +86,35 @@ They decided to rest for the night.
 Early in the morning, Zealous' watch was interrupted by the sudden return of two more goblins. She killed one, and Sparkleduck killed the other. Nix slept through the whole thing. 
 
 Janacia, impressed by Sparkleduck, gifted her a copper star wrapped in twine that she said would protect her. 
+
+Sparkleduck freed her new friend, Worgatha (the worg), from the goblin's cave and the group helped Janacia return to Mossdeep. 
+
+After a short rest at Steeb's house, the group said farewell to the family and headed back to Little Peckford, Zealous promising to deliver a box to Lorilla on Steeb's behalf. 
+
+Along the path to Little Peckford they met a group of Mummers who had been travelling through the High Forest performing in temples. They performed a play about a dwarven princess for the group who were mostly very polite about it. They travelled back to Little Peckford together, getting to know some of the group better. 
+
+When they were back in their home town, Zealous delivered the box to Lorilla, only to find it was filled with rather suspicious joints. The two of them spent the evening drinking Moonshine and getting high. 
+
+Sparkleduck spent the evening trying to hide Worgatha, who knocked down her garden shed and refused to be hidden. 
+
+Nix visited the Less Than Legal market and bought poison from a mysterious stranger in exchange for an ominous favour. 
+
+#### Day 30
+
+*Little Peckford*
+
+The group spend the day resting and recovering from the previous days adventures. 
+
+### Greengrass
+
+*Little Peckford*
+
+Each member of this merry band spent the day celebrating the Greengrass festival in their own way. Zealous and Nix were both in the town square when Lorilla threw moonshine at a group of small children trying to do a play about spring. 
+
+That evening, Lorilla was abscent from the feast and every member of the town was keen to ruminate on why this might be. Zealous and Sparkleduck got drunk, while Nix managed to sneak away to sleep in his own shack. 
+
+### Mirtul - The Melting
+
+#### Day 1
+
+Nix found Sparkleduck and Zealous sleeping in the town square and woke them. He suggested they head to Lorilla's house to check in on her. 
