@@ -118,3 +118,15 @@ That evening, Lorilla was abscent from the feast and every member of the town wa
 #### Day 1
 
 Nix found Sparkleduck and Zealous sleeping in the town square and woke them. He suggested they head to Lorilla's house to check in on her. 
+
+When they arrived at Lorilla's house they find the door shut. A brief investigation leads them out the back door and to the nearby still. On the floor beneath one of the taps they find broken ceramic. In an attempt to properly investigate the still, Nix suggested they open all the taps, letting the moonshine spill across the floor and outside. Sparkleduck detected conjuration magic had been used in the area. 
+
+Outside they hear a noise and find a scarecrow which they fight and successfully kill. After a brief investigation, which includes Zealous sliding down a moonshine soaked bank at the side of the river, they decide to head to the Shrine, to talk to Tim about any strange occurances in the area. 
+
+Tim is very tightlipped, but suggests they go to Peckford if they are looking for information about wizards in the area. 
+
+Because Zealous is feeling really dirty, she heads back to her castle for a bath and to procure some horses. Meanwhile Nix and Sparkleduck go to the market. They bump into Jason the bookseller, who has an argument with Sparkleduck that he misreads as sexually charged. She burps in his face, defusing the moment, while Nix steals a book on herbs. 
+
+Later on that afternoon, they meet Zealous in the pub. She has brought two horses with her, called Twinkletoes and Crayola. They have a chat with Surrly, who tells them about Ryam heading to Peckford. They lie to her and tell her the mayor has gone to Mossdeep to visit some sick relatives. 
+
+They leave to head for Peckford that evening. An hour or so into their journey, Sparkleduck feels a tingle of magic, and they are set upon by swarms of bats. They defeat the bats, but not before Sparkleduck is knocked unconcious. 

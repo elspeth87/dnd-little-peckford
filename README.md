@@ -15,6 +15,10 @@ Maps gathered by the players for the campaign, including the hometowm of Little 
 
 This is a brief introduction to D&D. 
 
+## [🧙‍♀️](./schools-of-magic.md) SCHOOLS OF MAGIC
+
+A guide to the different sorts of magic and what they mean. 
+
 
 ## CHARACTERS
 
