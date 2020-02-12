@@ -117,6 +117,8 @@ That evening, Lorilla was abscent from the feast and every member of the town wa
 
 #### Day 1
 
+*Little Peckford*
+
 Nix found Sparkleduck and Zealous sleeping in the town square and woke them. He suggested they head to Lorilla's house to check in on her. 
 
 When they arrived at Lorilla's house they find the door shut. A brief investigation leads them out the back door and to the nearby still. On the floor beneath one of the taps they find broken ceramic. In an attempt to properly investigate the still, Nix suggested they open all the taps, letting the moonshine spill across the floor and outside. Sparkleduck detected conjuration magic had been used in the area. 
@@ -130,3 +132,19 @@ Because Zealous is feeling really dirty, she heads back to her castle for a bath
 Later on that afternoon, they meet Zealous in the pub. She has brought two horses with her, called Twinkletoes and Crayola. They have a chat with Surrly, who tells them about Ryam heading to Peckford. They lie to her and tell her the mayor has gone to Mossdeep to visit some sick relatives. 
 
 They leave to head for Peckford that evening. An hour or so into their journey, Sparkleduck feels a tingle of magic, and they are set upon by swarms of bats. They defeat the bats, but not before Sparkleduck is knocked unconcious. 
+
+After healing Sparkleduck, the team decide to rest for the night. 
+
+---
+
+#### Day 2
+
+*Road to Peckford*
+
+Nix and Zealous' watches pass without incident, but Sparkleduck hears a noise a little way down the road. She meets a small halfling girl called Trynni Trickleback. After waking up the others, Trynni tells them she was travelling with her dad from the High Forest back to Peckford. She was staying in a farmstead outside the city and her father went missing. The gang decide to continue resting and then help Trynni find her father. 
+
+A short while later, they find a path to the farmstead. The farmhands run scared at the sight of Worgatha. Nix transforms in to an elven lord and demands entry. A guy claiming to be Steve and a guy whose name is probably Steve show them the room where Travis Trickleback was staying. His chest is almost empty, with only underwear remaining. 
+
+After a lot of arguing, they find out that Steve and Not Steve took the merchant's stuff and sold it at the Everything Market in Little Peckford. The gang investigates the farm and find a horse and an empty cart in the barn, and signs of the Greengrass festivities in an empty field between the barn and the farmhouse. In the field, Sparkleduck senses conjuration magic. Six deer appear from the barn. Sparkleduck talks to them and finds out that they're from a forest near the "Tower of the Moon". The team also finds out that a halfling called Simpson has also gone missing from the farm during Greengrass festival. 
+
+They make Steve and Not Steve pay 5gp to reimburse the Trickleback's for what was stolen from them. They make their way to Peckford. While Sparkleduck deals with feeding Worgatha, Nix and Zealous return Trynni to her mother, Tristin, in the Artisan Quarter of the city, only to find out that the cart should have contained at least 8 rolls of silk, each worth in excess of 800gp. 
