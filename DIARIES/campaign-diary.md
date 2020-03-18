@@ -148,3 +148,13 @@ A short while later, they find a path to the farmstead. The farmhands run scared
 After a lot of arguing, they find out that Steve and Not Steve took the merchant's stuff and sold it at the Everything Market in Little Peckford. The gang investigates the farm and find a horse and an empty cart in the barn, and signs of the Greengrass festivities in an empty field between the barn and the farmhouse. In the field, Sparkleduck senses conjuration magic. Six deer appear from the barn. Sparkleduck talks to them and finds out that they're from a forest near the "Tower of the Moon". The team also finds out that a halfling called Simpson has also gone missing from the farm during Greengrass festival. 
 
 They make Steve and Not Steve pay 5gp to reimburse the Trickleback's for what was stolen from them. They make their way to Peckford. While Sparkleduck deals with feeding Worgatha, Nix and Zealous return Trynni to her mother, Tristin, in the Artisan Quarter of the city, only to find out that the cart should have contained at least 8 rolls of silk, each worth in excess of 800gp. 
+
+As the sun set on Peckford, Nix and Zealous made their way back to the town square and met up with Sparkleduck. Suddenly, Nix's eyes turned grey and his friends hurried to keep up as he strode around the market hall towards Cognition's Column. 
+
+At the base of the column stood a cloaked figure, who demanded that Nix end the life of Lord Heward Ancelm. After asking at The Deep, they discovered that Lord Ancelm was a twelve year old, currently boarding at The Library. 
+
+They made their way across Peckford, and Sparkleduck leads them through The Library to the dorms. The younger scholars were in the mess. Sparkleduck found the young lord torturing a rat at the dinner table. Sparkleduck used her magic hand to take the fork he was using to torture the rat and stab it into his thigh. A monk working in the Library rushed Lord Ancelm to his room, and the group followed him. 
+
+They stormed the room, killing both the twelve year old boy and the monk. They framed the monk, crushing him under the chandelier, and waited for the dorms to fall asleep. 
+
+After midnight, they snuck out (after throwing the corpse of the young boy out of the window). They delivered the corpse to Matilda and Maurice at Ze Shit'ole and then spent the night at The Deep. In his pocket, Nix found The Twist of Fate. 
