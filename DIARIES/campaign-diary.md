@@ -157,4 +157,22 @@ They made their way across Peckford, and Sparkleduck leads them through The Libr
 
 They stormed the room, killing both the twelve year old boy and the monk. They framed the monk, crushing him under the chandelier, and waited for the dorms to fall asleep. 
 
-After midnight, they snuck out (after throwing the corpse of the young boy out of the window). They delivered the corpse to Matilda and Maurice at Ze Shit'ole and then spent the night at The Deep. In his pocket, Nix found The Twist of Fate. 
+After midnight, they snuck out (after throwing the corpse of the young boy out of the window). They delivered the corpse to Matilda and Maurice at Ze Shit'ole in exchange for one of the reams of silk that the Tricklebacks had lost and then spent the night at The Deep. In his pocket, Nix found The Twist of Fate. 
+
+---
+
+#### Day 3
+
+*Peckford*
+
+After spending the night at The Deep, Zealous, Sparkleduck and Nix - disguised as the High Elf Lord Pennyworth - head back to The Library in search of Parry. There, they encounter Miranda Featherfield, the receptionist. She is highly put out when Sparkleduck asks if she's reading porn and refuses to help them find Parry, but they find him anyway, in the reading library looking at fairytales. 
+
+Parry tells them he's worried something strange is going on. He's concerned that his friend, Ryam, has not yet arrived and that they did not pass him on the road. He also tells them about seeing a halfling bartender turning into something that claimed to be a dwarf, but clearly was not one. It jogged a memory, so he decided to look for the book his mother read him as a child. He also talks about an inspiring elf he spoke to about planar travel, called Eryn who passed through Faires Rest on his way to Tyr's Point. 
+
+The gang finds a book of fairytales by the Sisters Sinister called the tales of Far Far Away. Although there are no stories about dwarves in there, Parry is certain this is book one of the series his mum read to him. They find out that the Sisters Sinister were from Faires Rest and mysteriously went missing before they could publish any of their stories. 
+
+In the stacks, they find a map of the Peckford Basin from the 11th Century, with 5 stars on it. They also find a book, written by Cognition, about the Peckford Basin at that time which mentions secret doors and keys. Sparkleduck checks out the books and the map. 
+
+Zealous goes shopping for food and health potions, while Nix returns one of the ream of silk to Tristin, who is delighted to recieve it and asks eagerly when she'll recieve the rest. Sparkleduck heads over to her friend Isabella Bellhammer at the Moonshine Blues, a music shop in the Artisan Quarter of the city. As Nix arrives, they both learn that there was an elf in Peckford in the first tenday of Ches, talking about Mystra. 
+
+After meeting Zealous at the Market Hall, the three of them head back to the Library to research Mystra. 

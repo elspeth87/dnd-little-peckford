@@ -19,6 +19,13 @@ This is a brief introduction to D&D.
 
 A guide to the different sorts of magic and what they mean. 
 
+## [📑](./GROUP-NOTES/README.md) GROUP NOTES
+
+Notes made by the group. 
+
+## [📖](./BOOKS/README.md) BOOKS
+
+Books collected along the way by the adventurers. 
 
 ## CHARACTERS
 
