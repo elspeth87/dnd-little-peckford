@@ -176,3 +176,21 @@ In the stacks, they find a map of the Peckford Basin from the 11th Century, with
 Zealous goes shopping for food and health potions, while Nix returns one of the ream of silk to Tristin, who is delighted to recieve it and asks eagerly when she'll recieve the rest. Sparkleduck heads over to her friend Isabella Bellhammer at the Moonshine Blues, a music shop in the Artisan Quarter of the city. As Nix arrives, they both learn that there was an elf in Peckford in the first tenday of Ches, talking about Mystra. 
 
 After meeting Zealous at the Market Hall, the three of them head back to the Library to research Mystra. 
+
+On their way back to The Deep for the night, Parry and a friend of his called Charles, caught up with the adventurers. Parry asked if they would protect them on their journey back to Faires Rest. Nix agreed, but told Parry that it would cost him 40gp. 
+
+#### Day 4
+
+After a night's sleep at The Deep, they meet Parry and Charles by the Market Hall. Parry tries to pay Zealous the 20gp deposit for their trip, but she refuses and promises to help them out of the goodness of her heart. 
+
+They travelled along the path to Faires Rest. As they stop for lunch, Sparkleduck wowed the whole team with a rendition of "Goblin Up A Drainpipe" on the dulcimer. 
+
+After lunch, a tree stepped into their path. It started attacking them, but they killed it. Charles, Parry's short friend, recognised the tree and told them there were lots of talking trees in the Moonbay. 
+
+That evening they arrive at Faires Rest, and accompany Parry as he leaves Charles with Kiko Zumo. Parry points them in the direction of The Fairies Rest as the only place in town to stay. After trying to negotiate a more reasonable price, they spend 5gp for 3 rooms for one night in the prestigious inn. 
+
+#### Day 5
+
+After the best night's sleep they've ever had, the three meet outside the front of The Fairies Rest. Nix is now a red female Tiefling. 
+
+They headed to the market where Nix spent all her pocketmoney on souvenirs. They also bought some food for the next 24 hours and made their way towards the Tourist Information Centre. 
