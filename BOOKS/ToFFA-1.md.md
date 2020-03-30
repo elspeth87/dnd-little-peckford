@@ -51,5 +51,5 @@ The little boy looked up, crying and crying, his tears adding water around him. 
 
 This is the famous lost story of the Sisters Sinister. No one knows exactly what this story was about. The story was started but never finished. It was found in their cottage after the Sisters Sinister disappeared. Only one sentence was found. 
 
-> On a night when the moon was full, a pair of sisters where walking through the forest...
+> On a night when the moon was full, a pair of sisters were walking through the forest...
 
