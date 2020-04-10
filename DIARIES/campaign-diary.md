@@ -181,6 +181,8 @@ On their way back to The Deep for the night, Parry and a friend of his called Ch
 
 #### Day 4
 
+*Peckford*
+
 After a night's sleep at The Deep, they meet Parry and Charles by the Market Hall. Parry tries to pay Zealous the 20gp deposit for their trip, but she refuses and promises to help them out of the goodness of her heart. 
 
 They travelled along the path to Faires Rest. As they stop for lunch, Sparkleduck wowed the whole team with a rendition of "Goblin Up A Drainpipe" on the dulcimer. 
@@ -191,6 +193,16 @@ That evening they arrive at Faires Rest, and accompany Parry as he leaves Charle
 
 #### Day 5
 
+*Faires Rest*
+
 After the best night's sleep they've ever had, the three meet outside the front of The Fairies Rest. Nix is now a red female Tiefling. 
 
 They headed to the market where Nix spent all her pocketmoney on souvenirs. They also bought some food for the next 24 hours and made their way towards the Tourist Information Centre. 
+
+At the Tourist Information Centre, they find information about tours of Faires Rest and tours specific to the Sisters Sinister. They take the two hour tour of Faires Rest, followed by paying for a visit to the home of the Sisters Sinister. 
+
+Inside the cottage, they find (and Nix steals) a manuscript for the Sisters Sinister's unfinished story, *The Forever Tree*. After some investigation they see that two different people started to write the story, focusing on different things. 
+
+While on the tour, Sparkleduck noticed a tree in the pine forest, which doesn't look like a pine. While they're investigating the area, a dwarf comes running at them with a long sword. They realise that it is Kiko. After a very terse conversation with the usually laid back dwarf, they find out that he is the guard of the gate to Far Far Away. Kiko agrees to show them the door if they take Charles back with them, and help solve whatever problem is going on in Far Far Away. 
+
+Realising that they can't get through the door until the next full moon, which isn't until 14th Mirtul, they decide to spend the night at Kiko's house. 
