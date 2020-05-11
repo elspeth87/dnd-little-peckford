@@ -179,6 +179,8 @@ After meeting Zealous at the Market Hall, the three of them head back to the Lib
 
 On their way back to The Deep for the night, Parry and a friend of his called Charles, caught up with the adventurers. Parry asked if they would protect them on their journey back to Faires Rest. Nix agreed, but told Parry that it would cost him 40gp. 
 
+---
+
 #### Day 4
 
 *Peckford*
@@ -190,6 +192,8 @@ They travelled along the path to Faires Rest. As they stop for lunch, Sparkleduc
 After lunch, a tree stepped into their path. It started attacking them, but they killed it. Charles, Parry's short friend, recognised the tree and told them there were lots of talking trees in the Moonbay. 
 
 That evening they arrive at Faires Rest, and accompany Parry as he leaves Charles with Kiko Zumo. Parry points them in the direction of The Fairies Rest as the only place in town to stay. After trying to negotiate a more reasonable price, they spend 5gp for 3 rooms for one night in the prestigious inn. 
+
+---
 
 #### Day 5
 
@@ -206,3 +210,43 @@ Inside the cottage, they find (and Nix steals) a manuscript for the Sisters Sini
 While on the tour, Sparkleduck noticed a tree in the pine forest, which doesn't look like a pine. While they're investigating the area, a dwarf comes running at them with a long sword. They realise that it is Kiko. After a very terse conversation with the usually laid back dwarf, they find out that he is the guard of the gate to Far Far Away. Kiko agrees to show them the door if they take Charles back with them, and help solve whatever problem is going on in Far Far Away. 
 
 Realising that they can't get through the door until the next full moon, which isn't until 14th Mirtul, they decide to spend the night at Kiko's house. 
+
+---
+
+#### Day 6
+
+*Faires Rest*
+
+After buying enough food for three days travel (including some delicious Dirty Cleric cheese), the gang heads out of Faires Rest towards Peckford. 
+
+While on the road they come across two bears who attack them. In the ensuing conflict, Twinkletoes, Nix's trusty steed, was viciously killed. 
+
+They spend the night in the fields outside Peckford. 
+
+---
+
+#### Day 7
+
+*Peckford*
+
+That morning, Nix - in the guise of a red tiefling called Catherine Btightwood - walked confidently into the town square in Peckford, and rode back out on a stolen warhorse which he named Sgt. Cloppers. 
+
+Hightailing it out of Peckford, the gang make their way to Tyr's Point. A few miles outside of Peckford, Nix changes his appearance to look like a high elf called Lord Pennyworth. 
+
+Passing over The Bridge, they get attacked by shrubbery and barely make it out alive. They rest for the night at The Bridge. 
+
+---
+
+#### Day 8
+
+*The Bridge*
+
+After a long night's sleep, the gang arrives at Tyr's Point. Tying up their mounts outside the town, they walk to the Docks. Nix steals a loaf of bread. 
+
+In Tyr's Tower, they witness a sentancing being presided over by Justice Sacredbreeze. He sentances a half-elf to have his legs removed for stealing a horse. The half-elf claimed he didn't do it. 
+
+Using some manipulation. they are invited into the judges ante-chamber, where they meet Justice Longview, Justuce Venra and Justice Shemmesh. Justice Longview tells them that Eryn was heading to The Old Manor the last time she saw him. 
+
+After a delightfully awkward afternoon tea, the judges leave to watch the half-elf have his legs chopped off. 
+
+Meanwhile the gang find a suspicious building in the Tyrran's Quarter and break into it. Inside they find cells one of which has a child inside. When they open one of the doors they are attacked by the bandits inside. 
