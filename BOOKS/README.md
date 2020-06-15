@@ -10,4 +10,4 @@ First edition of the Tales of Far Far Away by the Sisters Sinister.
 
 A book about the Peckford Basin written by Cognition.
 
-## [📖]](A Rough Guide To Planar Travel.md) A Rough Guide To Planar Travel
+## [📖](A Rough Guide To Planar Travel.md) A Rough Guide To Planar Travel
