@@ -249,4 +249,98 @@ Using some manipulation. they are invited into the judges ante-chamber, where th
 
 After a delightfully awkward afternoon tea, the judges leave to watch the half-elf have his legs chopped off. 
 
-Meanwhile the gang find a suspicious building in the Tyrran's Quarter and break into it. Inside they find cells one of which has a child inside. When they open one of the doors they are attacked by the bandits inside. 
+Meanwhile the gang find a suspicious building in the Tyrran's Quarter and break into it. Inside they find cells one of which has a child inside. When they open one of the doors they are attacked by the bandits inside. During the struggle, both Nix and Zealous are knocked out cold.
+
+Thoroughly beated, the unhappy group trudge across Tyr's Point to the campsite, agreeing to pay for a pitch and a tent for all of them, and some delicious smelling stew. When a Half-Elf male approaches and makes a pass at a somewhat squeamish Zealous, Nix turns into a male dragonborn and intimidates him, scaring him away. As they eat their stew, they talk to other people staying at the camp. They learn from the campsite owner that several halflings and a gnome have gone missing since the Greengrass festivities. 
+
+---
+
+#### Day 9
+
+*Tyr's Point*
+
+Deciding there is no more for them to learn in Tyr's Point, they head back to Peckford. 
+
+However, on the road, the gang are attacked by a large yeti which seems extremely out of place in the lush green fields of the Peckford Basin. 
+
+Rather than risking being caught in possesion of a stolen horse, they rest outside Peckford for the night. 
+
+---
+
+#### Day 10
+
+*Peckford*
+
+In a noble attempt to recoup the losses for the Trickleback's, the gang head back to the farm. There they find an old woman and a couple of farmhands who try to rob them. The team manage to overpower them and find some treasure in the farmhouse, but not enough to cover the Trickleback's expensive silks. 
+
+They spend the night at the farm. 
+
+---
+
+#### Day 11
+
+*Road to Peckford*
+
+The team heads back to Peckford. Disguised as Lorn Pennyworth, Nix returns to Tristin Trickleback and gives her the bloodstones he found in the farm as well as the promise of the deed to the farm. 
+
+Meanwhile, Sparkleduck and Zealous make their way to the market to top up supplies for both themselves and an extremely peckish Worgatha. Nix joins them and buys parchment. 
+
+They spend the rest of the day shopping in Peckford, visiting such delights as Tom Hiddleston's Adventurers Shop (from which Nix steals a ring that he gives to Zealous and an amulet), and the Armorer (where they buy weaponery and order personalised shields, one with a Z and one with a sparkly penis). 
+
+They then head to the mysterious location marked on Nix's map as Magenta's. There they find Magenta, a sturdy woman, trying to recruit people to join her cause against the gods. Something Nix says soon gets them kicked out. 
+
+At Jason's book shop they try to buy the Rough Guide to Planar Travel and Artigas' Guide to Spotting Forgeries. Unfortunately, his prices are too high. In an attempt to save money, Sparkleduck tries to steal the book using her Unseen Servant. Her Unseen Servant not only tries to steal the wrong book, but is noticed by Jason who takes it back. 
+
+By the time they arrive at the Library, it's closed. They decide to feed the horses and bed down for the night at The Deep. 
+
+---
+
+#### Day 12
+
+*Peckford*
+
+Being in a studious mood, the team starts their day with a trip to the Library. Here, Sparkleduck finds the book that Jason was trying to charge so much for, Nix fakes a deed for a farm using the parchment he bought the day before and Zealous becomes engrossed in a cook book called Mother Brothel's Summer Soups. 
+
+Once they are done in the Library, Nix heads to Tristin's apartment, where he leaves the deed. Sparkleduck and Zealous go to pick up their shields, and by mid afternoon they are all on thier way to Faires Rest once more. 
+
+Despite a short stop for dinner, Sparkleduck is soon exhausted, so the gang spend the night on the side of the road to Faires Rest. 
+
+---
+
+#### Day 13
+
+*Road to Faires Rest*
+
+The journey to Faires Rest is a long, but mostly uneventful one. By mid afternoon they arrive at Kiko's house where they rest up for the night. 
+
+---
+
+#### Day 14
+
+*Faires Rest*
+
+Zealous and Sparkleduck finally take the 8 hour tour of Faires Rest that they've been dreaming of. It's everything they hoped for and more. 
+
+That evening when the moon is full, Kiko takes them to the tree which is not like the others. There he leaves them with Charles the dwarf who they had promised to return to his home in exchange for a wish if they reunite him with his brothers. They see five coloured stones on the floor. Each one picks up a different colour, only to find that they have been cursed. Only when they can figure out each of their afflictions are they able to cross through the portal which appears in the shape of a door in the tree...
+
+---
+
+---
+
+## Far Far Away
+
+#### Day 1
+
+*Sisters Pass*
+
+Arriving on the other side of the portal, they find themselves in bright daylight standing on a mountain path. A man approaches them. He tells them his name is Harvey Breton and he requests their help in rescuing his daughter from a foul "bête" which has ensnared her. 
+
+They follow Harvey to a large castle surrounded by overgrown foliage. Inside the courtyard they find a young lady crying over the body of a dying beast. Although they try to help her save him, despite Harvey's insistance to the contrary, it is not until a single tear falls from the young lady onto the beast's cheek that he awakens. 
+
+Grateful to the team for trying to save him, he rewards them with treasures from his castle. 
+
+As they continue down the mountain path they are attacked by a group of knights who knock out Zealous, Nix and Sparkleduck and tie them up. 
+
+The next four days are spent in the back of their cart, being treated like criminals. They do not see Charles. 
+
+---
