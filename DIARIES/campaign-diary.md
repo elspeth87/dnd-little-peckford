@@ -344,3 +344,84 @@ As they continue down the mountain path they are attacked by a group of knights 
 The next four days are spent in the back of their cart, being treated like criminals. They do not see Charles. 
 
 ---
+
+#### Day 5
+
+*Silvervayne*
+
+Upon their arrival at Silvervayne, they are lead through the pristine town to castle of the Fairy King. The castle is made up of many multicoloured towers of different heights and sizes. Inside they are presented to the Queen, who they recoginse as Bodwynn Icehelm, the Dwarven Princess from the Sisters Sinister's story. She is kind to them until her husband, the fairy king arrives, along with their somewhat petulant daughter, Princess Darilynn. 
+
+At dinner, the Fairy King informs them that he has had enough trouble from other strangers turning up in his kingdom and trying to take his throne. If they want to live, they will bring him a symbol of obesience from each of the four most powerful families in Far Far Away. 
+
+From Bea Clifton in Port Crimson, he requires "the root of her secret"; from Thorstar Lodmundsson in Castingveil, the "wings of love"; from Sultana Scherezade in Vistaspire, "her voice"; and from Peleus in Moonport, he demands "Demios". 
+
+They spend their night in the palace. 
+
+---
+
+#### Day 6
+
+*Silvervayne*
+
+Before leaving that morning, Sparkleduck is taken to one side by the Queen and given a wand to help with their mission. 
+
+They leave on the great ship, The Providence, with a team of 11 to help them, including Captain Jaydan, one of the knights who captured them. Nell, the first mate, is much more friendly and shows them around the ship. 
+
+They sail south along the coastline, heading to their first destination; Moonport.
+
+Over dinner, they hear from the cook, Erhart, the story of seven brothers from his home town of Septaglade. 
+
+----
+
+#### Day 7
+
+*The Providence*
+
+During the night, the adventurers hear chaos errupting on the main deck, and leave their shared cabin to find the boat being attached by merpeople riding giant seahorses. 
+
+In helping to defend the ship, they befriend some of the crew. 
+
+During the day, they explore the boat. Nix investigates Erika, and steals a knotted ribbon and some herbs from a chest by her bunk. Zealous makes friends with Trude, the healer on the ship, who tells her about a ghostship in her hometown. Sparkleduck meets Ben, a nice but dim junior member of the crew who tells her about his hometown of Easterportal, which they are currently sailing past. 
+
+Erhart bakes sweet buns for dinner, a traditional treat from Easterportal. 
+
+---
+
+#### Day 8
+
+*The Providence*
+
+The Providence is attacked by a killer whale. The team jumps into action, but Nell is wounded during the encounter. 
+
+With a lot of delicious meat now onboard the ship thanks to the dead killer whale, the team helps the rest of the crew butcher and store the meat. Noticing Erika crying, they discover that her ribbon is missing. It is a fidelity ribbon, coated in the seed of her husband, designed to ensure that he is faithful to her while she is away. They ask Erika about how she feels about the Fairy King. 
+
+They also meet Dagmar and speak to Lukas, before sitting down to a dinner of killer whale. 
+
+That evening, while Ben and Helmut are on the main deck, Nix, in the guise of the Fairy King, sneaks downstairs to Erika's hammock to return the fidelity ribbon. When he whispers her name into her ear she awakes with a scream, and continues to scream when she sees the man she thinks is the Fairy King standing over her bed. The rest of the crew awakes, and the "Fairy King" sends them all up to the deck. He returns the ribbon to Erika and tells her to help Nix, Zealous and Sparkleduck however she can. She eagerly agrees. 
+
+Walking up to the main deck, the "Fairy King" tells the crew that this was a test. They have passed for now. He then turns into a raven and flies away. Zealous and Sparkleduck, not realising that the Fairy King is Nix, try to find their friend. Realising that Nix is missing, Erika is distraught, worried that she is already failing the instructions given to her by the Fairy King. She stops the ship, insisting the weigh anchor so that they can find Nix, dead or alive. 
+
+Meanwhile, Nix flies back to the window if his cabin. He is helped inside by Sparkleduck and Zealous. The douse him in water which they lift into the cabin using a chamber pot, so that they can claim they pulled him out of the water. 
+
+---
+
+#### Day 9
+
+*The Providence* 
+
+Erika is relieved to see Nix and believes that he fell in the sea. They up anchor and continue on their way. 
+
+---
+
+#### Day 10
+
+*The Providence* 
+
+They are awoken by Nell who drags them to the main deck, where people "attracted to women" are tying themsleves to the sides of the boat. Nix and Nell are tied up, and then they hear the singing. Nix, and the other people tied to the side of the boat, immediately start to try to break their bounds to reach the two sirens who are singing to them. 
+
+After a long and drawn out battle, during which Nix slips his bounds, turns into a raven, flies to the sirens and is then paralysed, the sirens are killed. The Providence continues on to Moonport. 
+
+Once in Moonport, they make their way to the Palace of Perimedes, home of Peleus, using fake names. They are lead to a waiting room where they hear two women bickering about who slept with whose husband first. From these two ladies they learn that Peleus is training his son to be as strong a hero as Heracles. 
+
+When Sparkleduck corrects them to Hercules, they get angry, believing that these strangers are friends of Jupiter who keeps insisting that the gods have different names. 
+
