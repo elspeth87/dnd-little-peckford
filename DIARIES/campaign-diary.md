@@ -425,3 +425,8 @@ Once in Moonport, they make their way to the Palace of Perimedes, home of Peleus
 
 When Sparkleduck corrects them to Hercules, they get angry, believing that these strangers are friends of Jupiter who keeps insisting that the gods have different names. 
 
+Finally, a guard leads them through to see King Peleus. He greets them in his throne room and is surprised and delighted that they have travelled so far to see his son, believing they are his fans. He takes them to the gymnasium to see Galtran, Demios' trainer who informs them that he hasn't seen the lad in about 5 days. 
+
+Galtran leads them to the Maze of Artemis, a place an hour or so walk from Moonport which he uses to scare straight some of his more stubborn students. They take the stone spiral staircase down into the entry hall, where they find footprints they believe belong to Demios. 
+
+However, before they are able to enter the maze, they are set upon by three birds. 
